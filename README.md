@@ -1,2 +1,1 @@
-# somoy
-Personal Webpage
+# Personal Webpage of Mushohyqur Rahman [ Somoy ]
